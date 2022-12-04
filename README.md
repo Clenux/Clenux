@@ -1,4 +1,4 @@
-# Hey there, i'm Snipedox!
+# Hey there, i'm Nexus!
 I'm known on discord as Nexus#0783, and i am a Javascript, Css and HTML coder.
 I make basic projects and am a very friendly guy!
 
